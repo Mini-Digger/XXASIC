@@ -8,5 +8,7 @@
 
 2、普通宽带即可，无需流量卡
 
+3、1%总费用，明码标价，有口皆碑
+
 电报群
 https://t.me/+iudWyPHQDVkxMDJl
