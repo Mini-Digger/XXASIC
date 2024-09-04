@@ -10,5 +10,7 @@
 
 3、0.7%总费用，明码标价，有口皆碑
 
+4、局域网内需要一台Windows电脑运行本软件，低端的迷你主机都行
+
 电报群
 https://t.me/+iudWyPHQDVkxMDJl
